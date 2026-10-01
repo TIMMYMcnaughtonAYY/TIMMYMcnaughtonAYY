@@ -1,1 +1,4 @@
-https://mail.google.com/mail/u/1?ui=2&ik=b408bd6b8e&attid=0.1&permmsgid=msg-a:s:12566052106220735225&th=1a0f5fd2d79f4f70&view=att&disp=safe&realattid=bc145e8a58084498_0.1&zw
+<img width="2128" height="2720" alt="Untitled185_20261001154016" src="https://github.com/user-attachments/assets/6e6f7570-4c29-447e-972b-4af78d25267b" />
+
+Who added me to the Wikipedia page?    <img width="384" height="127" alt="Screenshot 2026-09-25 015217" src="https://github.com/user-attachments/assets/f05d895d-2a65-400d-9583-049adf351247" />
+
